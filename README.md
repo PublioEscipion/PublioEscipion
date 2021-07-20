@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @PublioEscipion
-- 👀 I’m interested in the desctrution of worlds! 
+- 👀 I’m interested in the destruction of worlds! 
 - 🌱 I’m currently learning how to destroy worlds!
 - 💞️ I’m looking to collaborate on destroying worlds!
 - 📫 How to reach me at destroying worlds!
